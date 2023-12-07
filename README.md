@@ -1,3 +1,3 @@
 # kloucloud.github.io
 
-Stay Tuned.. ;-)
+Un peu de patience ! 
